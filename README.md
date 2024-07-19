@@ -1,0 +1,1 @@
+# SolidWorks-2024-Crack
